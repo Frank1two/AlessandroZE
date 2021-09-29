@@ -24,4 +24,7 @@
 ##
 
   ![](http://pm1.narvii.com/6429/c6f498b8b6eb09af7100e3f5efd8f42c78510f35_00.jpg)
-
+  
+  
+  ![](https://i.pinimg.com/736x/01/c3/9b/01c39b07db39be2cf343afc0e9d74c3a.jpg)
+  Dark1Two estuvo aqui 🤑
