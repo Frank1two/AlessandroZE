@@ -14,7 +14,12 @@
 ##
 ## MI PASATIEMPOS:
 
-- Me gusta mayormente jugar videojuegos 🕹
+- Me gusta mayormente jugar videojuegos 🕹, como:
+- Osu
+- Free Fire
+- Valorant
+- Pubg
+- Call of Dutyy
 - Hacer un poco de ejercicios🏃‍♂️ 🏋️‍♂️
 - Dormir 😴💤
 - Pasar el tiempo con mis gatos 🐱
