@@ -5,10 +5,12 @@
 
 ![](https://pa1.narvii.com/6070/1cdb6aae3cd0a3e4e747ae437fb49cb34503692f_hq.gif)
 
-- Tengo 17 años
+- Mi nombre completo es Alessandro Zevallos Espinoza, tengo 17 años
 - Estudio la carrera CS 
 - Universidad UTEC
 - Me gustan los animales 
+- Mi cumpleaños: 21/12 
+- Vivo en Lima
 ##
 ## MI PASATIEMPOS:
 
